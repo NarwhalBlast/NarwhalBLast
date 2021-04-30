@@ -1,1 +1,3 @@
 # NEW ACCOUNT: https://github.com/SimonChenWasTaken
+I changed my account name to "SimonChenWasTaken" because I wanted people to know it was me.
+Also, "SimonChen" was taken 😔...
